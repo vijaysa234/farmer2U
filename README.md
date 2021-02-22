@@ -1,2 +1,2 @@
-# farmers2U
+# farmer2U
 coming Soon page 
